@@ -1,4 +1,4 @@
-# Raven Blackwood and Iris — Obsidian Vault
+# An Unfathomable Tragedy — Obsidian Vault
 
 Welcome to the story vault. Use the links below to move between the story, character pages, locations, lore, and visual references.
 
